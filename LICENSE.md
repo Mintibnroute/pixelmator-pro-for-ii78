@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Pixelmator Pro for macOS script with rare Pixelmator Pro for macOS Script | batch processing + shortcut customization. Featuring batch processing and shortcut
 
 
 
